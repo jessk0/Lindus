@@ -6,4 +6,4 @@
 
 ![WIR](IMG_1394.jpeg)
 
-[![Für meine Lindus](https://img.youtube.com/vi/n3HliT3475U/maxresdefault.jpg)](https://www.youtube.com/watch?v=n3HliT3475U)
+[![Video ansehen](https://img.youtube.com/vi/n3HliT3475U/0.jpg)](https://www.youtube.com/watch?v=n3HliT3475U)
